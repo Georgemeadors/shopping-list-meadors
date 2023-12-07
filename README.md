@@ -1,0 +1,1 @@
+[Link to my google docs dev-log 2](https://docs.google.com/document/d/1RjNEx97j7XXQ9FDROMNQu6KS0P1vyT8IAHlCpo6zo_8/edit)
